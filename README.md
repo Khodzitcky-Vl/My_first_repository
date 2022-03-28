@@ -2,4 +2,4 @@
 
 ## Here I willl train my proigramming skills
 
-Here we gojjhnj
+Here we go
